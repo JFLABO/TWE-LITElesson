@@ -6,3 +6,5 @@
 コントローラ
 
 主装置　処理
+
+https://akizukidenshi.com/catalog/c/ctwe/
